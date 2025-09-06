@@ -4,7 +4,7 @@
 - 🧑‍💼 I’m working on Projects and Assignments that goes with programming
 - 📜 Some of the projects i've worked on are Simple function calculator site,Weather site,a Good Landing Page and  a Portfolio.
 - 📫 How to reach me ⬇️
-- Tel :0-913-459-7269
+- Tel : +234-70-7734-7326
 - Email : tjhadham@gmail.com
   
 
